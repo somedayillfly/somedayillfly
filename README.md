@@ -8,7 +8,8 @@
 ## this is basically my spam follow account :D
 
 ## I don't really pay much attention to who i'm following, and i usually don't check links/profiles before following people, so if i'm following someone problematic, **please tell me!** i'd rather know and unfollow them than accidentally support someone shitty.
-<img width="100%" height="100" alt="tumblr_4ab08389650d31476de1656e382a872d_25867d3f_400" src="https://github.com/user-attachments/assets/5eba0386-268e-4253-ab92-e4b865bd1f9e" />
+<img width="2048" height="276" alt="tumblr_7195c910eeeb8f523ef5d09dbc960984_85ef3a3c_2048" src="https://github.com/user-attachments/assets/e988a2b6-9789-447e-82d8-ae1de61bc9cf" />
+
 
 ## my main is **@shotgunsinners** if you wanna check me out or see where i actually interact more.
 
