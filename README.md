@@ -1,4 +1,4 @@
-<img width="100%" height="64" alt="tumblr_4ab08389650d31476de1656e382a872d_25867d3f_400" src="https://github.com/user-attachments/assets/edfd3c26-a258-48f0-afe5-49ef6b876d0c" />
+<img width="100%" height="100" alt="tumblr_4ab08389650d31476de1656e382a872d_25867d3f_400" src="https://github.com/user-attachments/assets/edfd3c26-a258-48f0-afe5-49ef6b876d0c" />
 
 ## Hi, i'm Ads!
 ## this is basically my spam follow account :D
