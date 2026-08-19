@@ -14,7 +14,7 @@
 
 ## Anyways hi !! have fun snooping around <3
 
-<img width="100%" height="327" alt="tumblr_5e6dcc3d99d047f7457c4713e45a12de_345c3f71_400" src="https://github.com/user-attachments/assets/57003509-7ac6-4cdc-a657-ee9844125533" />
+<img width="2048" height="327" alt="tumblr_5e6dcc3d99d047f7457c4713e45a12de_73e1c3f0_2048" src="https://github.com/user-attachments/assets/2ee577dd-9f35-4d3e-95cc-672039023a41" />
 
 <!--
 **somedayillfly/somedayillfly** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
