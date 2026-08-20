@@ -15,7 +15,7 @@
 
 ## Anyways hi !! have fun snooping around <3
 
-<img width="2000" height="692" alt="tumblr_3e4ac54e30f9c3790dc64fc649222af7_5087d3e9_2048" src="https://github.com/user-attachments/assets/1da7d88a-70ef-4d82-98bd-ac5e32305cc2" />
+<img width="100%" height="692" alt="tumblr_3e4ac54e30f9c3790dc64fc649222af7_5087d3e9_2048" src="https://github.com/user-attachments/assets/1da7d88a-70ef-4d82-98bd-ac5e32305cc2" />
 
 
 <!--
